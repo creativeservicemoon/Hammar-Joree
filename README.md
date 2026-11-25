@@ -1,2 +1,4 @@
 # Moon-Das
-MD.softdew operate my business on a Network MarketPresso, AdsCrisp, Content Gorila 2.0, and 200 more products Concept. Now you own a business with endless opportunities and possibilities. You are at the right place. Extremely Thanks!
+MDsoftdew – Digital Technologies & Solutions
+www.mdsoftdew.com
+Discover MDsoftdew, your digital growth partner for graphic design, branding, SEO, digital marketing, software consulting, website development and eCommerce solutions.
